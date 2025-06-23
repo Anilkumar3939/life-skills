@@ -7,7 +7,7 @@
 
 - Focus fully on the speaker.  
 - Avoid distractions (turn off phone, close tabs).  
-- Use body language like nodding and eye contact.  
+- Use body language like nodding and eye contact. 
 - Notice tone, expressions, and gestures.  
 - Use small words like “Hmm”, “Okay” to show you’re listening.  
 - Don’t interrupt, let them finish.
